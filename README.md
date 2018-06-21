@@ -32,6 +32,8 @@ Note:- Add them to your own playlist also feel free to contribute your songs too
 
 - Richard Sanderson "Reality" (Extended Version) - https://www.youtube.com/watch?v=yZ_I9HR1v1I
 
+- Would it still make you love me? - https://www.youtube.com/watch?v=svT5AsPkEB8
+
 - I'm in love with you, but... - https://www.youtube.com/watch?v=-gKpcj1N6ec
 
 - Thief-Ookay - https://soundcloud.com/ookaymusic/thief
