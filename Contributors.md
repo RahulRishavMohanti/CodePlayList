@@ -1,5 +1,5 @@
 # Contributors
 
-- [Ritvik Khanna](https://github.com/ritvikkhanna09)
-- [Divyansh Khanna](https://github.com/divyanshkhanna09)
+- [Ritvikkhanna09](https://github.com/ritvikkhanna09)
+- [Divyanshk](https://github.com/divyanshk)
 - [Shiro97](https://github.com/Shiro97)
