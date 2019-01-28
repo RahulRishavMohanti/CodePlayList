@@ -31,3 +31,9 @@
 - I'm in love with you, but... - https://www.youtube.com/watch?v=-gKpcj1N6ec
 
 - Thief-Ookay - https://soundcloud.com/ookaymusic/thief
+
+- Makeba - https://www.youtube.com/watch?v=59Q_lhgGANc
+
+- Sweet Dreams (Are Made of This) - https://www.youtube.com/watch?v=qeMFqkcPYcg
+
+- Burn the House Down - https://www.youtube.com/watch?v=UnyLfqpyi94
